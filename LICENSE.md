@@ -1,4 +1,4 @@
-
+Enhance Strava for macOS with premium Strava for macOS Automation | custom-workouts + calorie-counter, the #1 automation. Includes custom-workouts and calorie-counter for a
 
 
 
